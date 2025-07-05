@@ -8,6 +8,9 @@
 
 ---------
 
+> [!NOTE] 
+> I have anger issues since 2023, i may be cool but doing something stupid can cause me to get mad.
+
 # Table of contents
 [📧 | Contacting me](https://github.com/NAEL2XD/NAEL2XD/README.md#contacting-me)
 
